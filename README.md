@@ -2,7 +2,7 @@
 
 ***Corey Taylor*** 
 
-![Corey Taylor](https://cdn.mos.cms.futurecdn.net/PQnpAUzhB7i3LgDcTvHsUK-1200-80.jpg)
+<img src="https://cdn.mos.cms.futurecdn.net/PQnpAUzhB7i3LgDcTvHsUK-1200-80.jpg" width="200" height="200">
 <pre>
 She seemed dressed in all of me
 Stretched across my shame,
