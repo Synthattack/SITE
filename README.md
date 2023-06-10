@@ -1,6 +1,6 @@
 ### VERMILION PT.2 ###
 
-** Corey Taylor **
+** Corey Taylor ** 
 
 ![Corey Taylor](https://cdn.mos.cms.futurecdn.net/PQnpAUzhB7i3LgDcTvHsUK-1200-80.jpg)
 <pre>
@@ -8,9 +8,7 @@ She seemed dressed in all of me
 Stretched across my shame,
 All the torment and the pain
 Leaked through and covered me.
-<pre>
 <hr/>---------------------------<hr/>
-<pre>
 She is everything to me,
 The unrequited dream,
 The song that no one sings,
