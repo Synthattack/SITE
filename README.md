@@ -8,7 +8,9 @@ She seemed dressed in all of me
 Stretched across my shame,
 All the torment and the pain
 Leaked through and covered me.
+<pre>
 <hr/>---------------------------<hr/>
+<pre>
 She is everything to me,
 The unrequited dream,
 The song that no one sings,
