@@ -1,6 +1,6 @@
 ### VERMILION PT.2 ###
 
-** Corey Todd Taylor **
+** Corey Taylor **
 
 ![Corey Taylor](https://cdn.mos.cms.futurecdn.net/PQnpAUzhB7i3LgDcTvHsUK-1200-80.jpg)
 <pre>
