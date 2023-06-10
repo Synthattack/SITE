@@ -1,4 +1,4 @@
-##### VERMILION PT.2 #####
+### VERMILION PT.2 ###
 
 *** Corey Todd Taylor ***
 
@@ -8,9 +8,7 @@ She seemed dressed in all of me
 Stretched across my shame,
 All the torment and the pain
 Leaked through and covered me.
-
 <hr/>---------------------------<hr/>
-
 She is everything to me,
 The unrequited dream,
 The song that no one sings,
